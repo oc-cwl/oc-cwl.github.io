@@ -8,7 +8,7 @@ To astral vision ether is a visible thing, and is seen permeating all substances
 
 These four etheric substates will be best understood if the method be explained by which they were studied. This method consisted of taking what is called an atom of gas, and breaking it up time after time, until what proved to be the ultimate physical atom was reached, the breaking up of this last resulting in the production of astral, and no longer physical matter.
 
-![](/img/e4.jpg)
+![](/img/e4.png)
 
 It is, of course, impossible to convey by words the clear conceptions that are gained by direct vision of the objects of study, and the accompanying diagram—cleverly drawn from the description given by the investigators—is offered as a substitute, however poor, for the lacking vision of the readers. The horizontal lines separate from each other the seven substates of matter; solid, liquid, gas, ether 4, ether 3, ether 2, ether 1. On the gas level are represented three chemical atoms, one of hydrogen (H), one of oxygen (O), one of nitrogen (N). The successive changes undergone by each chemical atom are shown in the compartments vertically above it, the left-hand column showing the breaking up of the hydrogen atom, the middle column that of the oxygen atom, the right-hand column, that of the nitrogen atom. The ultimate physical atom is marked a, and is drawn only once, although it is the same throughout. The numbers 18, 290 and 261 are the numbers of the ultimate physical atoms found to exist in a chemical atom.
 
