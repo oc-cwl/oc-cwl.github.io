@@ -12,7 +12,7 @@ _Revised Edition edited by A.P. Sinnett_
   - [The Dumbbell Group.](/chap/c3.2)
   - [The Tetrahedral Groups.](/chap/c3.4)
   - [The Cube Groups.](/chap/c3.6)
-  - [The Octahedral Groups.](/chap/c3.8)
+  - [The Octahedral, Bars and Spikes Groups.](/chap/c3.8)
   - [The Star Groups.](/chap/c3.10)
 - [Appendix](/chap/appendix.md)
 - [Notes](/chap/notes.md)
