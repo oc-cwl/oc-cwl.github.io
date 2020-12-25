@@ -12,7 +12,7 @@ _Revised Edition edited by A.P. Sinnett_
   - [II - The Dumbbell Group.](/chap/c3.2)
   - [III - Dissociation of Atoms.](/chap/c3.3)
   - [IV - The Tetrahedral Groups.](/chap/c3.4)
-  - [V](/chap/c3.5)
+  - [V - Dissociation of the Tetrahedral Groups.](/chap/c3.5)
   - [VI](/chap/c3.6)
   - [VII](/chap/c3.7)
   - [VIII](/chap/c3.8)
