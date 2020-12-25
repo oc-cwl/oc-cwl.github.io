@@ -9,6 +9,8 @@ _Revised Edition edited by A.P. Sinnett_
 - [Chapter I - A Preliminary Survey.](/chap/c1)
 - [Chapter II - Details of the Early Research.](/chap/c2)
 - [Chapter III - The Later Researches.](/chap/c3)
+- [Appendix](/chap/appendix.md)
+- [Notes](/chap/notes.md)
 
 ## Editor's preface
 
