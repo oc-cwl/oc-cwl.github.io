@@ -1,0 +1,118 @@
+# DETAILS OF THE EARLY RESEARCH.
+
+The article detailing the results of the research carried on in the year 1895 (see the November issue for that year of the magazine then called Lucifer), began with some general remarks about the clairvoyant faculty, already discussed in the preceding chapter. The original record then goes on as follows:—
+
+The physical world is regarded as being composed of between sixty and seventy chemical elements, aggregated into an infinite variety of combinations. These combinations fall under the three main heads of solids, liquids and gases, the recognised substates of physical matter, with the theoretical ether scarcely admitted as material. Ether, to the scientist, is not a substate or even a state of matter, but is a something apart by itself. It would not be allowed that gold could be raised to the etheric condition as it might be to the liquid and gaseous; whereas the occultist knows that the gaseous is succeeded by the etheric, as the solid is succeeded by the liquid, and he knows also that the word "ether" covers four substates as distinct from each other as are the solids, liquids and gases, and that all chemical elements have their four etheric substates, the highest being common to all, and consisting of the ultimate physical atoms to which all elements are finally reducible. The chemical atom is regarded as the ultimate particle of any element, and is supposed to be indivisible and unable to exist in a free state. Mr. Crookes' researches have led the more advanced chemists to regard the atoms as compound, as a more or less complex aggregation of protyle.
+
+To astral vision ether is a visible thing, and is seen permeating all substances and encircling every particle. A "solid" body is a body composed of a vast number of particles suspended in ether, each vibrating backwards and forwards in a particular field at a high rate of velocity; the particles are attracted towards each other more strongly than they are attracted by external influences, and they "cohere," or maintain towards each other a definite relation in space. Closer examination shows that the ether is not homogeneous but consists of particles of numerous kinds, differing in the aggregations of the minute bodies composing them; and a careful and more detailed method of analysis reveals that it has four distinct degrees, giving us, with the solid, liquid and gaseous, seven instead of four substates of matter in the physical world.
+
+These four etheric substates will be best understood if the method be explained by which they were studied. This method consisted of taking what is called an atom of gas, and breaking it up time after time, until what proved to be the ultimate physical atom was reached, the breaking up of this last resulting in the production of astral, and no longer physical matter.
+
+![](/img/e4.jpg)
+
+It is, of course, impossible to convey by words the clear conceptions that are gained by direct vision of the objects of study, and the accompanying diagram—cleverly drawn from the description given by the investigators—is offered as a substitute, however poor, for the lacking vision of the readers. The horizontal lines separate from each other the seven substates of matter; solid, liquid, gas, ether 4, ether 3, ether 2, ether 1. On the gas level are represented three chemical atoms, one of hydrogen (H), one of oxygen (O), one of nitrogen (N). The successive changes undergone by each chemical atom are shown in the compartments vertically above it, the left-hand column showing the breaking up of the hydrogen atom, the middle column that of the oxygen atom, the right-hand column, that of the nitrogen atom. The ultimate physical atom is marked a, and is drawn only once, although it is the same throughout. The numbers 18, 290 and 261 are the numbers of the ultimate physical atoms found to exist in a chemical atom.
+
+The dots indicate the lines along which force is observed to be playing, and the arrowheads show the direction of the force. No attempt has been made to show this below E 2 except in the case of the hydrogen. The letters given are intended to help the reader to trace upwards any special body; thus d in the oxygen chemical atom on the gas level may be found again on E 4, E 3, and E 2. It must be remembered that the bodies shown diagrammatically in no way indicate relative size; as a body is raised from one substate to the one immediately above it, it is enormously magnified for the purpose of investigation, and the ultimate atom on E 1 is represented by the dot a on the gaseous level.
+
+The first chemical atom selected for this examination was an atom of hydrogen (H). On looking carefully at it, it was seen to consist of six small bodies, contained in an egg-like form. It rotated with great rapidity on its own axis, vibrating at the same time, and the internal bodies performed similar gyrations. The whole atom spins and quivers, and has to be steadied before exact observation is possible. The six little bodies are arranged in two sets of three, forming two triangles that are not interchangeable, but are related to each other as object and image. (The lines in the diagram of it on the gaseous sub-plane are not lines of force, but show the two triangles; on a plane surface the interpenetration of the triangles cannot be clearly indicated.) Further, the six bodies are not all alike; they each contain three smaller bodies—each of these being an ultimate physical atom—but in two of them the three atoms are arranged in a line, while in the remaining four they are arranged in a triangle.
+
+The wall of the limiting spheroid in which the bodies are enclosed being composed of the matter of the third, or gaseous, kind, drops away when the gaseous atom is raised to the next level, and the six bodies are set free. They at once re-arrange themselves in two triangles, each enclosed by a limiting sphere; the two marked b in the diagram unite with one of those marked b' to form a body which shows a positive character, the remaining three forming a second body negative in type. These form the hydrogen particles of the lowest plane of ether, marked E 4—ether 4—on the diagram. On raising these further, they undergo another disintegration, losing their limiting walls; the positive body of E 4, on losing its wall, becomes two bodies, one consisting of the two particles, marked b, distinguishable by the linear arrangement of the contained ultimate atoms, enclosed in a wall, and the other being the third body enclosed in E 4 and now set free. The negative body of E 4 similarly, on losing its wall, becomes two bodies, one consisting of the two particles marked b', and the second the remaining body, being set free. These free bodies do not remain on E 3 but pass immediately to E 2, leaving the positive and negative bodies, each containing two particles, as the representatives of hydrogen on E 3. On taking these bodies a step higher their wall disappears, and the internal bodies are set free, those containing the atoms arranged lineally being positive, and those with the triangular arrangement being negative. These two forms represent hydrogen on E 2, but similar bodies of this state of matter are found entering into other combinations, as may be seen by referring to f on E 2 of nitrogen (N). On raising these bodies yet one step further, the falling away of the walls sets the contained atoms free, and we reach the ultimate physical atom, the matter of E 1. The disintegration of this sets free particles of astral matter, so that we have reached in this the limit of physical matter. The Theosophical reader will notice with interest that we can thus observe seven distinct substates of physical matter, and no more.
+
+The ultimate atom, which is the same in all the observed cases, is an exceedingly complex body, and only its main characteristics are given in the diagram. It is composed entirely of spirals, the spiral being in its turn composed of spirillæ, and these again of minuter spirillæ. A fairly accurate drawing is given in Babbitt's "Principles of Light and Colour," p. 102. The illustrations there given of atomic combinations are entirely wrong and misleading, but if the stove-pipe run through the centre of the single atom be removed, the picture may be taken as correct, and will give some idea of the complexity of this fundamental unit of the physical universe.
+
+Turning to the force side of the atom and its combinations, we observe that force pours in the heart-shaped depression at the top of the atom, and issues from the point, and is changed in character by its passage; further, force rushes through every spiral and every spirilla, and the changing shades of colour that flash out from the rapidly revolving and vibrating atom depend on the several activities of the spirals; sometimes one, sometimes another, is thrown into more energetic action, and with the change of activity from one spiral to another the colour changes.
+
+The building of a gaseous atom of hydrogen may be traced downward from E 1, and, as stated above, the lines given in the diagram are intended to indicate the play of the forces which bring about the several combinations. Speaking generally, positive bodies are marked by their contained atoms setting their points towards each other and the centre of their combination, and repelling each other outwards; negative bodies are marked by the heart-shaped depressions being turned inwards, and by a tendency to move towards each other instead of away. Every combination begins by a welling up of force at a centre, which is to form the centre of the combination; in the first positive hydrogen combination, E 2, an atom revolving at right angles to the plane of the paper and also revolving on its own axis, forms the centre, and force, rushing out at its lower point, rushes in at the depressions of two other atoms, which then set themselves with their points to the centre; the lines are shown in +b, right-hand figure. (The left-hand figure indicates the revolution of the atoms each by itself.) As this atomic triad whirls round, it clears itself a space, pressing back the undifferentiated matter of the plane, and making to itself a whirling wall of this matter, thus taking the first step towards building up the chemical hydrogen atom. A negative atomic triad is similarly formed, the three atoms being symmetrically arranged round the centre of out-welling force. These atomic triads then combine, two of the linear arrangement being attracted to each other, and two of the triangular, force again welling up and forming a centre and acting on the triads as on a single atom, and a limiting wall being again formed as the combination revolves round its centre. The next stage is produced by each of these combinations on E 3 attracting to itself a third atomic triad of the triangular type from E 2, by the setting up of a new centre of up-welling force, following the lines traced in the combinations of E 4. Two of these uniting, and their triangles interpenetrating, the chemical atom is formed, and we find it to contain in all eighteen ultimate physical atoms.
+
+The next substance investigated was oxygen, a far more complicated and puzzling body; the difficulties of observation were very much increased by the extraordinary activity shown by this element and the dazzling brilliancy of some of its constituents. The gaseous atom is an ovoid body, within which a spirally-coiled snake-like body revolves at a high velocity, five brilliant points of light shining on the coils. The snake appears to be a solid rounded body, but on raising the atom to E 4 the snake splits lengthwise into two waved bodies, and it is seen that the appearance of solidity is due to the fact that these spin round a common axis in opposite directions, and so present a continuous surface, as a ring of fire can be made by whirling a lighted stick. The brilliant bodies seen in the atom are on the crests of the waves in the positive snake, and in the hollows in the negative one; the snake itself consists of small bead-like bodies, eleven of which interpose between the larger brilliant spots. On raising these bodies to E 3 the snakes break up, each bright spot carrying with it six beads on one side and five on the other; these twist and writhe about still with the same extraordinary activity, reminding one of fire-flies stimulated to wild gyrations. It can been seen that the larger brilliant bodies each enclose seven ultimate atoms, while the beads each enclose two. (Each bright spot with its eleven beads is enclosed in a wall, accidentally omitted in the diagram.) On the next stage, E 2, the fragments of the snakes break up into their constituent parts; the positive and negative bodies, marked d and d', showing a difference of arrangement of the atoms contained in them. These again finally disintegrate, setting free the ultimate physical atoms, identical with those obtained from hydrogen. The number of ultimate atoms contained in the gaseous atom of oxygen is 290, made up as follows:
+
+2 in each bead, of which there are 110:
+
+7 in each bright spot, of which there are 10;
+
+2 x 110 + 70 = 290.
+
+When the observers had worked out this, they compared it with the number of ultimate atoms in hydrogen:
+
+290 / 18 = 16.11 +
+
+The respective number of ultimate atoms contained in a chemical atom of these two bodies are thus seen to closely correspond with their accepted weight-numbers.
+
+It may be said in passing that a chemical atom of ozone appears as an oblate spheroid, with the contained spiral much compressed and widened in the centre; the spiral consists of three snakes, one positive and two negative, formed in a single revolving body. On raising the chemical atom to the next plane, the snake divides into three, each being enclosed in its own egg.
+
+The chemical atom of nitrogen was the third selected by the students for examination, as it seemed comparatively quiet in contrast with the ever-excited oxygen. It proved, however, to be the most complicated of all in its internal arrangements, and its quiet was therefore a little deceptive. Most prominent was the balloon-shaped body in the middle, with six smaller bodies in two horizontal rows and one large egg-shaped one in the midst, contained in it. Some chemical atoms were seen in which the internal arrangement of these contained bodies was changed and the two horizontal rows became vertical; this change seemed to be connected with a greater activity of the whole body, but the observations on this head are too incomplete to be reliable. The balloon-shaped body is positive, and is apparently drawn downwards towards the negative egg-shaped body below it, containing seven smaller particles. In addition to these large bodies, four small ones are seen, two positive and two negative, the positive containing five and the negative four minuter spots. On raising the gaseous atom to E 4, the falling away of the wall sets free the six contained bodies, and both the balloon and the egg round themselves, apparently with the removal of their propinquity, as though they had exercised over each other some attractive influence. The smaller bodies within the egg—marked q on E 4—are not on one plane, and those within n and o form respectively square-based and triangular-based pyramids. On raising all these bodies to E 3 we find the walls fall away as usual, and the contents of each "cell" are set free: p of E 4 contains six small bodies marked k, and these are shown in k of E 3, as containing each seven little bodies—marked e—each of which has within it two ultimate atoms; the long form of p E 4—marked l—appears as the long form l on E 3, and this has three pairs of smaller bodies within it, f', g and h, containing respectively three, four and six ultimate atoms; q of E 4, with its seven contained particles, m, has three particles m on E 3, each showing three ultimate atoms within them; e from n of E 4 becomes i of E 3, with contained bodies, e, showing two ultimate atoms in each; while e' from o of E 4 becomes j of E 3, each having three smaller bodies within it, e', with two ultimate atoms in each. On E 2, the arrangement of these ultimate atoms is shown, and the pairs, f', g and h are seen with the lines of force indicated; the triads in f—from m of E 3—are similarly shown, and the duads in e and e'—from i and j of E 3—are given in the same way. When all these bodies are raised to E 1, the ultimate physical atoms are set free, identical, of course, with that previously described. Reckoning up the number of ultimate physical atoms in a chemical atom of nitrogen we find they amount to 261, thus divided:
+
+```
+        62 +  bodies with 2 ultimate atoms, 62 x 2 = 124
+        24 -    "     "   2    "       "    24 x 2 =  48
+        21 -    "     "   3    "       "    21 x 3 =  63
+         2 +    "     "   3    "       "     2 x 3 =   6
+         2 +    "     "   4    "       "     2 x 4 =   8
+         2 +    "     "   4    "       "     2 x 6 =  12
+                                                    ----
+                                                     261
+```
+
+This again approaches closely the weight-number assigned to nitrogen:—
+
+261 / 18 =14.44 +
+
+This is interesting as checking the observations, for weight-numbers are arrived at in so very different a fashion, and especially in the case of nitrogen the approximation is noteworthy, from the complexity of the bodies which yield the number on analysis.
+
+Some other observations were made which went to show that as weight-numbers increased, there was a corresponding increase in the number of bodies discerned within the chemical atom; thus, gold showed forty-seven contained bodies; but these observations need repetition and checking. Investigation of a molecule of water revealed the presence of twelve bodies from hydrogen and the characteristic snake of oxygen, the encircling walls of the chemical atoms being broken away. But here again, further observations are necessary to substantiate details. The present paper is only offered as a suggestion of an inviting line of research, promising interesting results of a scientific character; the observations recorded have been repeated several times and are not the work of a single investigator, and they are believed to be correct so far as they go.
+
+# THE PLATONIC SOLIDS.
+
+Some of our readers may be glad to have a drawing of the Platonic solids, since they play so large a part in the building up of elements. The regular solids are five, and five only; in each:
+
+1. The lines are equal.
+2. The angles are equal.
+3. The surfaces are equal.
+
+![](/img/ps.png)
+
+It will be seen that the tetrahedron is the fundamental form, the three-sided pyramid on a triangular base, i.e., a solid figure formed from four triangles. Two of these generate the cube and the octahedron; five of these generate the dodecahedron and the icosahedron.
+
+The rhombic dodecahedron is not regular, for though the lines and surfaces are equal, the angles are not.
+
+# NOTES.
+
+Mr. C. Jinarâjadâsa[1] writes:
+
+The asterisk put before metargon in the list of elements should be omitted, for metargon had been discovered by Sir William Ramsey and Mr. Travers at the same time as neon (see Proceedings of the Royal Society, vol. lxiii, p. 411), and therefore before it was observed clairvoyantly. It is not, however, given in the latest list of elements in the Report of November 13, 1907, of the International Atomic Weights Commission, so it would seem as though it were not yet fully recognised.
+
+Neon was discovered in 1898 by Ramsey and Travers, and the weight given to it was 22. This almost corresponds with our weight for meta-neon, 22.33; the latest weight given to neon is 20, and that corresponds within one-tenth to our weight, 19.9. From this it would seem that neon was examined in the later investigations and meta-neon in the earlier.
+
+He says further on a probable fourth Interperiodic Group:
+
+Thinking over the diagrams, it seemed to me likely that a fourth group exists, coming on the paramagnetic side, directly under iron, cobalt, nickel, just one complete swing of the pendulum after rhodium, ruthenium, palladium. This would make four interperiodic groups, and they would come also periodically in the table too.
+
+I took the diagram for Osmium, and in a bar postulated only three columns for the first element of the new groups, i.e., one column less than in Osmium. This would make 183 atoms in a bar; the new group then would follow in a bar, 183, 185, 187. Here I found to my surprise that the third postulated group would have a remarkable relation to Os, Ir, Pt.
+
+Thus
+
+```
+        Os.--245     (in a bar);      less 60 = 185
+        Ir.  247                      less 60 = 187
+        Pt.  249                      less 60 = 189
+```
+
+But strange to say also
+
+```
+    Ruthenium (bar) 132              less 60--72
+    Rhodium         134              less 60--74
+    Palladium       136              less 60--76
+```
+
+But 72, 74, 76, are Iron, Cobalt and Nickel.
+
+So there does probably exist a new group with bars (183), 185, 187, 189, with atomic weights.
+
+```
+    X=bar 185;      atoms      2590, wt. 143.3
+    Y=    187,                 2618, wt. 145.4
+    Z=    189,                 2646, wt. 147.0.
+```
+
+They come probably among the rare earths. Probably also Neodymium and Praseodymium are two of them, for their weights are 143.6, 140.5.
