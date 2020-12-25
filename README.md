@@ -10,7 +10,7 @@ _Revised Edition edited by A.P. Sinnett_
 - [Chapter II - Details of the Early Research.](/chap/c2)
 - [Chapter III - The Later Researches.](/chap/c3)
   - [II - The Dumbbell Group.](/chap/c3.2)
-  - [III](/chap/c3.3)
+  - [III - Dissociation of Atoms.](/chap/c3.3)
   - [IV - The Tetrahedral Groups.](/chap/c3.4)
   - [V](/chap/c3.5)
   - [VI](/chap/c3.6)
