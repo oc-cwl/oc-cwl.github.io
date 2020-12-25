@@ -9,7 +9,7 @@ _Revised Edition edited by A.P. Sinnett_
 - [Chapter I - A Preliminary Survey.](/chap/c1)
 - [Chapter II - Details of the Early Research.](/chap/c2)
 - [Chapter III - The Later Researches.](/chap/c3)
-  - [II](/chap/c3.2)
+  - [II - The Dumbbell Group.](/chap/c3.2)
   - [III](/chap/c3.3)
   - [IV](/chap/c3.4)
   - [V](/chap/c3.5)
