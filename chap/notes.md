@@ -8,7 +8,7 @@
 
 [4] The astral plane.
 
-[5] Known to Theosophists as Fohat, the force of which all the physical plane forces—electricities—are differentiations.
+[5] Known to Theosophists as Fohat, the force of which all the physical plane forces — electricities — are differentiations.
 
 [6] When Fohat "digs holes in space."
 
@@ -22,7 +22,7 @@
 
 [11] Each spirilla is animated by the life-force of a plane, and four are at present normally active, one for each round. Their activity in an individual may be prematurely forced by yoga practice.
 
-[12] "The ten numbers of the sun. These are called Dis—in reality space—the forces spread in space, three of which are contained in the Sun's Atman, or seventh principle, and seven are the rays shot out by the Sun." The atom is a sun in miniature in its own universe of the inconceivably minute. Each of the seven whorls is connected with one of the Planetary Logoi, so that each Planetary Logos has a direct influence playing on the very matter of which all things are constructed. It may be supposed that the three, conveying electricity, a differentiation of Fohat, are related to the Solar Logoi.
+[12] "The ten numbers of the sun. These are called Dis — in reality space — the forces spread in space, three of which are contained in the Sun's Atman, or seventh principle, and seven are the rays shot out by the Sun." The atom is a sun in miniature in its own universe of the inconceivably minute. Each of the seven whorls is connected with one of the Planetary Logoi, so that each Planetary Logos has a direct influence playing on the very matter of which all things are constructed. It may be supposed that the three, conveying electricity, a differentiation of Fohat, are related to the Solar Logoi.
 
 [13] The action of electricity opens up ground of large extent, and cannot be dealt with here. Does it act on the atoms themselves, or on molecules, or sometimes on one and sometimes on the other? In soft iron, for instance, are the internal arrangements of the chemical atom forcibly distorted, and do they elastically return to their original relations when released? and in steel is the distortion permanent? In all the diagrams the heart-shaped body, exaggerated to show the depression caused by the inflow and the point caused by the outflow, is a single atom.
 
